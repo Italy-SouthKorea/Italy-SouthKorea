@@ -1,5 +1,6 @@
-![1000004074](https://github.com/user-attachments/assets/1d81ce23-4cc7-4883-a8b7-a17c3b9f9533)
+<p align="center">${\textsf{\color{blue}𝐋𝐢𝐟𝐞 𝐛𝐜 𝐋𝐞𝐚𝐡 𝐟𝐢𝐧𝐧𝐚 𝐝𝐞𝐛𝐮𝐭}}$</p>
+
+![1000004088](https://github.com/user-attachments/assets/18220006-b132-4a81-a826-8e07dfc88cc4)
+
 
 ![1000004077](https://github.com/user-attachments/assets/eab00a1a-911e-426b-ba24-5fef82f85719)
-
-<img width="736" height="736" alt="1000003978" src="https://github.com/user-attachments/assets/64b7e716-e5a0-488a-b2fe-7e841e420ea1" />
